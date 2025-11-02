@@ -1,0 +1,3 @@
+In this website we can give the details of GBW. The meaning of “G” is green it tells about the trees and plants details and the meaning of “B” is blue it means it tells about the sea living things and ocean living things details and the word “W” means wild. tells about the animals on world wide and giving details for that This website is very useful for every people and mostly used for school level students for gaining knowledge on trees . sea fishes and animals. we should provide the names and images on the selected topic. We can also added the pictures for attraction on the students
+
+<img width="21017" height="171" alt="image" src="https://github.com/user-attachments/assets/cd7c5cfb-31ea-4726-9af4-b5df6cab1fc0" />
